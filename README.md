@@ -16,3 +16,10 @@
 
 </p>
 
+## **Pessoas Contribuidoras:**
+
+Laisa Karina do Nascimento
+
+Lucas Camargo Eduardo de Moura
+
+
