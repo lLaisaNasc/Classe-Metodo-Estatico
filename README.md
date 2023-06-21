@@ -20,6 +20,6 @@
 
 Laisa Karina do Nascimento
 
-Lucas Camargo Eduardo de Moura
+Lucas Eduardo Camargo de Moura
 
 
